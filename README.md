@@ -1,0 +1,2 @@
+# Miami-University-Sexual-Climate-Survey-Results-Analysis
+ Sexual violence is of growing concern among college campuses in the United States. Miami University is no exception. Preventing and remedying sexual misconduct is essential to ensuring a safe environment in which students can learn.    To obtain information about the prevalence of sexual assault and interpersonal violence a climate survey was initiated and administered. Respondents were undergraduate and graduate students at Miami University. 
